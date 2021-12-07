@@ -1,0 +1,1 @@
+# Obsidian-Starter-Vault
